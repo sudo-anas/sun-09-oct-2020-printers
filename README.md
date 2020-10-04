@@ -1,2 +1,2 @@
-# sun-09-oct-2020-printers
+# SUN, 09-Oct-2020 Printers
 SIMPLE WEB DOWNLOAD AND WEB PANEL
